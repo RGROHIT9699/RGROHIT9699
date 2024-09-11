@@ -18,7 +18,7 @@
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1hclNXKXakSmbMoqqAxFft0keq6UV-VPo/view?usp=sharing](https://drive.google.com/file/d/1hclNXKXakSmbMoqqAxFft0keq6UV-VPo/view?usp=sharing)
 
-- ⚡Fun Fact **I am like exploring things🤠**
+- ⚡Fun Fact **I like exploring things🤠**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
